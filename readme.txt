@@ -1,2 +1,2 @@
-"ol·"
-ol· de novo
+"ol√°"
+ol√° de novo
